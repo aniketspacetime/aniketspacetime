@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aniketspacetime.
-- 👀 I’m interested in GOD.
+- 👀 I’m interested in GOD soulfully.
 - 🌱 I’m currently learning about materialistic world.
 - 💞️ I’m looking to collaborate with love.  
 - 📫 How to reach me is with Pure love only.
